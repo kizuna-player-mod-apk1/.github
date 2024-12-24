@@ -4,7 +4,7 @@
 
 Kizuna Player is an engaging mobile game that brings anime-inspired dating simulations to your Android device. In this game, you step into the shoes of a character and interact with various in-game personas, making choices that will shape the story and the relationships you build with others. If you love anime and enjoy interactive storytelling, Kizuna Player will keep you hooked with its dynamic gameplay and customizable characters.
 
-## Download Now: 👉👉 https://heyapks.com/ 👈👈
+## Download Now: 👉👉 https://heyapks.com/kizuna-player.html 👈👈
 ![ảnh 4](https://github.com/user-attachments/assets/0b0042ae-0e2b-4d65-86fb-7d5f336014b6)
 
 ## Key Features of Kizuna Player
